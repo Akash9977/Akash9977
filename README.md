@@ -1,3 +1,4 @@
+<img  src="programmer.gif" align="top" width="100%"/>
 <h1 align="center"> Hi there 👋 I'm Akash Pal</h1>
 <h3 align="center">I'm a Passionate Web developer & Graphics Designer from Bangladesh</h3>
 <p align="left"> <a href="https://twitter.com/akash_kuma77" target="blank"><img src="https://img.shields.io/twitter/follow/akash_kuma77?logo=twitter&style=for-the-badge" alt="akash_kuma77" /></a> </p>
