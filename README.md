@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **facebook https://www.facebook.com/iamakash.Kumar77/**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Irn84Ove0MCbYNpdkW5TP5PnO4jZzn9C/view?usp=sharing](https://drive.google.com/file/d/1Irn84Ove0MCbYNpdkW5TP5PnO4jZzn9C/view?usp=sharing)
+- 📄 Know about My Resume [https://drive.google.com/file/d/1Irn84Ove0MCbYNpdkW5TP5PnO4jZzn9C/view?usp=sharing](https://drive.google.com/file/d/1bppx5Qi9Idsk6jn-ITYctCDYQJVj9hQW/view?usp=sharing)
 
 - 💖In my free time, **listen to music like & Movies.**
 
