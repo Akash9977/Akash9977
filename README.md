@@ -11,7 +11,7 @@
 
 - 📝 I regularly **Learning Something New**
 
-- 💬 Ask me about **email at akash2@dti.ac I'll try to respond as soon as I can.**
+- 💬 Ask me about **email at akashpal0518@gmail.com I'll try to respond as soon as I can.**
 
 - 📫 How to reach me **facebook https://www.facebook.com/iamakash.Kumar77/**
 
